@@ -13,6 +13,7 @@ The show is about two brothers, **Sam and Dean Winchester**, who hunt monsters, 
 - Sam Winchester (Jared Padalecki)  
 - Dean Winchester (Jensen Ackles)  
 - Castiel (Misha Collins)
+- Jack (Alexander Calvert)
 
 ## Creator
 The show was created by **Eric Kripke**.
@@ -21,7 +22,7 @@ The show was created by **Eric Kripke**.
 Fantasy / Horror / Drama
 
 ## Why I Like It
-I like Supernatural because it has cool stories about monsters, angels, and family.  
+I like Supernatural because it has cool stories about monsters, angels, demons, and family.  
 The brothers always stick together no matter what happens.
 
 ## Fun Fact
