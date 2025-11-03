@@ -2,7 +2,7 @@
 My first repository
 # Supernatural
 
-This is a simple project about the TV series **Supernatural**.
+GOATED TV series **Supernatural**.
 
 ## About the Show
 Supernatural is an American TV show that started in **2005** and ended in **2020**.  
